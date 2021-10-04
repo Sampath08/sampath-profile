@@ -1,1 +1,1 @@
-# ChinthalapalliaiMaharshi
+# sampath profile
